@@ -6,7 +6,7 @@
 
 #### * Phone: 7(977) 374 66 17
 #### * Email: valevs.isv@gmail.com
-#### * Telegram: @valerieis
+#### * Telegram: @valerieis / phone number
 
 ## **Summary:**
 
