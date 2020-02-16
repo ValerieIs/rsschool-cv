@@ -22,7 +22,7 @@
 
 ## **Experience:**
 
-#### I work as an interface and graphic designer. I know how user experience design works, so it helps with 
+#### I work as an interface and graphic designer. I know how user experience design works, so it helps with developer's work. 
 
 ## **Education:** 
 
